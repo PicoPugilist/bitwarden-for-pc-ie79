@@ -1,4 +1,4 @@
-# 
+# new Bitwarden for PC | Bitwarden for Windows Extension | identity-storage + secure-notes is the best Bitwarden for PC | Bitwarden for Windows extension, featuring identity-storage
 
 
 
